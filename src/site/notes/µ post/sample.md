@@ -31,3 +31,4 @@ Kind of an attempt to explore grief, identity, hope and their interplay, as well
 * It'd ideally be a trilogy?
 * In terms of potential final word count (for this first thing), I've pulled the number 120,000 somewhere out of the aether. Could very well be more since I haven't properly outlined this thing (uh-oh). 
 * Current title for it is GODSend. Another title if that one doesn't work out for whatever reason is (Genesis Fugue) Adamantine Symphony.
+
